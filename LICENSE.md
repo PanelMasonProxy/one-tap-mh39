@@ -1,4 +1,4 @@
-
+Experience one tap like never before with one tap Scripts top, the #1 Script. Includes anti-ban and instant win for unbeatable performance.
 
 
 
